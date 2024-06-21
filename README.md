@@ -1,2 +1,3 @@
-# ramal-gece-konu-mas-
-ramal ifsa hardcore
+# Botunu kullandığınız adamın gevçek yüzü
+
+
